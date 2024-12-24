@@ -1,4 +1,4 @@
-# How-to-get-a-100-FREE-Hypercharge-3-FREE-Pins-
+# How to get a 100% FREE Hypercharge & BRAWL STARS Pins! 
 
 
 Brawl Stars is one of Supercell's star titles that was launched back in 2018. With its exciting campaigns and events, this multiplayer game has been gaining traction rapidly.

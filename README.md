@@ -7,9 +7,9 @@ One of the things that players enjoy the most about this game is its multiplayer
 
 Here are all the Brawl Stars Free Pins for 2025
 
-**[✅👉Click Here to Claim Your Free Bingo-Blitz Codes Now](https://usadeals.pro/Bingo-Blitz)**
+**[✅👉Click Here to Claim Your Free Brawl-Stars Codes Now](https://usadeals.pro/Brawl-Stars)**
 
-**[✅👉Click Here to Claim Your Free Bingo-Blitz Codes Now](https://usadeals.pro/Bingo-Blitz)**
+**[✅👉Click Here to Claim Your Free Brawl-Stars Codes Now](https://usadeals.pro/Brawl-Stars)**
 
 Pins bring extra fun to Brawl Stars, offering various emoticons and special designs. They come in four levels of rarity levels - Common, Rare, Epic, and Collector’s Pins, making collecting them exciting.
 
